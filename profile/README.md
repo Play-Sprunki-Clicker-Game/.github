@@ -4,6 +4,8 @@
 
 **Sprunki Clicker** is a **hyper casual clicker game** that takes tapping to the **extreme**! Enter a **crazy pixel world** where you help **Sprunki** – a fearless cartoon character – grow stronger by tapping like never before. With every click, you earn energy to **level up**, **unlock insane upgrades**, and conquer impossible challenges.
 
+## <a href="https://1kb.link/chHJq1">👉 Click To Play Sprunki Clicker Unblocked 👈</a>
+
 ---
 
 ### 💥 Why You’ll Love Sprunki Clicker
